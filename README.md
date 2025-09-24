@@ -1,6 +1,6 @@
 ### Hi, I'm Firdaus✨
 
-📘Studying DAM rn <br/>
+📕Studying DAM rn <br/>
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/v_0_n_09) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/firdauschikita1) 
