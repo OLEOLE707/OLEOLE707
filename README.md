@@ -1,7 +1,7 @@
 ### Hi, I'm Firdaus✨
 
 # 💫 About Me:
-📍Spain<br>💮19yo<br>📕Studying DAM
+📍Spain<br>💮20yo<br>📕Studying DAM
 
 
 ## 🌐 Socials:
